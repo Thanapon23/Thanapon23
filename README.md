@@ -7,7 +7,7 @@ I'm a CRM Analytics Executive at Minor International with 2 years of experience 
 
 * 🌍  I'm based in Bangkok, Thailand
 * ✉️  You can contact me at [thanapon.poothong@gmail.com](mailto:thanapon.poothong@gmail.com)
-* 📝  Here is my resume. [Thanapon's Resume](https://github.com/Thanapon23/Thanapon23/blob/main/Resume/%CE%A4hanapon's%20Resume.pdf)
+* 📝  Here is my resume. [Thanapon's Resume](https://github.com/Thanapon23/Thanapon23/blob/main/Resume_Thanapon_Poothong.pdf)
 
 
 
